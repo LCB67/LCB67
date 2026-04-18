@@ -1,6 +1,6 @@
 <hr>
 
-[<img width="361" height="361" align="left" alt="animated" src="https://cdn.discordapp.com/attachments/1321626792905146379/1492717159967625367/image0.gif?ex=69dc58b0&is=69db0730&hm=06f2edef8451f16dd173dbed17a3082276ba246e2fd2cb559545fa700ef5a4de" />](https://youtu.be/7-2PUEl-7a4?si=WV8KzexgrDmKu0fy)
+[<img width="361" height="361" align="left" alt="animated" src="https://s2.ezgif.com/tmp/ezgif-2ed73ffff0dd495e.gif" />](https://youtu.be/7-2PUEl-7a4?si=WV8KzexgrDmKu0fy)
 
 
 </br> </br>
