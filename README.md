@@ -1,6 +1,6 @@
 <hr>
 
-[<img width="361" height="361" align="left" alt="animated" src="https://s7.ezgif.com/tmp/ezgif-79a709245eb81130.gif" />](https://youtu.be/7-2PUEl-7a4?si=WV8KzexgrDmKu0fy)
+[<img width="361" height="361" align="left" alt="animated" src="https://github.com/LCB67/LCB67/blob/main/image0.gif?raw=true" />](https://youtu.be/7-2PUEl-7a4?si=WV8KzexgrDmKu0fy)
 
 
 </br> </br>
