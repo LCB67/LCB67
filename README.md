@@ -14,7 +14,7 @@
 
 </br> </br>
 
-carrd is still a wip burps
+[carrd](https://remainoneself.carrd.co/)
 
 </br>
 </br> 
