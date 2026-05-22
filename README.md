@@ -22,5 +22,5 @@
  
  <hr>
  
-<img width="90" height="30" alt="image" src="https://github.com/directoryuser1/directoryuser1/raw/main/The_Ring_Pointillist_Student_Yi_Sang_Idle_Animation%20(1).gif" /> [[ojjh im fullstopping it]](https://github.com/theindexnursefather) me la saco~~~4 
+<img width="90" height="30" alt="image" src="https://github.com/directoryuser1/directoryuser1/raw/main/The_Ring_Pointillist_Student_Yi_Sang_Idle_Animation%20(1).gif" /> [[el papá de haru sugino limbus]](https://github.com/theindexnursefather) te ofreces para enfriarselas y te la enfrian por el culo
 
