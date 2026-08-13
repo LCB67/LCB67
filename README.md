@@ -22,5 +22,5 @@
  
  <hr>
  
-<img width="90" height="30" alt="image" src="https://github.com/LCB67/LCB67/blob/main/The_Ring_Pointillist_Student_Yi_Sang_Idle_Animation.gif?raw=true" /> [[el papá de haru sugino limbus]](https://github.com/gebinah) te ofreces para enfriarselas y te la enfrian por el culo
+<img width="90" height="30" alt="image" src="https://github.com/LCB67/LCB67/blob/main/The_Ring_Pointillist_Student_Yi_Sang_Idle_Animation.gif?raw=true" /> [[el papá de haru sugino limbus]](https://github.com/directoryuser1) te ofreces para enfriarselas y te la enfrian por el culo
 
